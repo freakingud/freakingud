@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @freakingud
-- 👀 I’m Frontend Web Dev & Hacking Enthusiast
+- 👀 Frontend Web Dev & Hacking Enthusiast
 - 🌱 I’m currently BCA final year student in India.
 - 👉 Struggling content creator on YouTube
 - reach me on Instagram - @hack.and.code
