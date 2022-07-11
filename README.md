@@ -2,4 +2,4 @@
 - 👀 Frontend Web Dev & Hacking Enthusiast
 - 🌱 I’m currently BCA final year student in India.
 - 👉 Struggling content creator on YouTube
-- reach me on Instagram - @hack.and.code
+- reach me on Instagram - @freakingud.dev
